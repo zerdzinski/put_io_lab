@@ -1,1 +1,1 @@
-# Jakub Żerdziński 27.10
+# Jakub Żerdziński 
